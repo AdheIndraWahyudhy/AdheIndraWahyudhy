@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 Perkenalkan nama saya **Adhe Indra Wahyudhy**.
 
-Saya seorang **Curriculum Developer** di [Dicoding](https://www.dicoding.com/).
+Saya seorang **Peserta SIB** di [Dicoding](https://www.dicoding.com/).
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Instagram](https://www.instagram.com/adhe_eeeee/)ku ya.
 
